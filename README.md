@@ -34,12 +34,13 @@ I"m girlier than I thought...pink was my least favorite as a little girl...but i
 
 
 **List your 6 Most Important Things to do Today**
-1. 
-2. 
-3. 
-4. 
-5. 
-6. 
+1. for me to know
+2. get that letter out
+3. read this
+4. make that call
+5. get some sleep
+6. go to work....
+7. just kidding.. this is not my real list.. but I have one!!
 
 
 
