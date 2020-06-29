@@ -47,4 +47,4 @@ Ready to Work :thumbsup: :fist: and Shine :sparkles: :sparkling_heart:
 
 ![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcSY3UOZI1fEz-FjVLLE-UiYZ1IyDUVx8CgwOA&usqp=CAU)
 
-![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcQ-FVIHw8F7mwTRxxrkFVSTzCLlT7CrAZ0HKw&usqp=CAU)
+![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcSckpbcjrgB9sp3jGe4xbUBQkI1BrxYLvCiMA&usqp=CAU)
