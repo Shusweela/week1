@@ -22,8 +22,9 @@ I"m girlier than I thought...pink was my least favorite as a little girl...but i
 Ready to Work :thumbsup: :fist: and Shine :sparkles: :sparkling_heart: 
 
 
+
 **Like Nike *used* to say**...
->Just Do It!
+>Just Do It!  :heavey_check_mark:
 
 
 **A To Do List**
@@ -45,7 +46,7 @@ Ready to Work :thumbsup: :fist: and Shine :sparkles: :sparkling_heart:
 
 
 
-
+![Alt Text] (https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcSY3UOZI1fEz-FjVLLE-UiYZ1IyDUVx8CgwOA&usqp=CAU)
 
 
 
