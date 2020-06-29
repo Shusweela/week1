@@ -17,8 +17,9 @@ yellow, green, orange, blue etc..
 I"m girlier than I thought...pink was my least favorite as a little girl...but iridescent is probably girlier. ha
 ```
 
-**Hmmm**
-:thumbsup: :fist: Ready to Work and Shine :sparkles: :sparkling_heart: 
+**Hmmm**...
+
+Ready to Work :thumbsup: :fist: and Shine :sparkles: :sparkling_heart: 
 
 
 **Like Nike *used* to say**...
