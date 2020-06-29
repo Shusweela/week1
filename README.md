@@ -1,9 +1,26 @@
 # week1
 
-**Shusweela Oliphant**
+***Shusweela Oliphant***
 
-*Cotton Candy*
+_*Iridescent*_
 
-(https://i.pinimg.com/originals/28/e0/8b/28e08b1bda2764b1710a8dd86202cc76.jpg)
+![Alt Text](https://i5.walmartimages.com/asr/e2a2f034-e5e1-4373-b2fd-bf15f9cb2a6b_1.9e4caaf41e750c151e4c86232880dc4f.jpeg?odnWidth=612&odnHeight=612&odnBg=ffffff)
 
-:heart:
+Always has been.. funny, how they just started coming out with this color in stores!
+
+Other Colors like...
+```
+peach
+coral
+cotton Candy
+```
+:sparkles: Ready to Work and Shine :sparkling_heart: :Thumbsup: :fist:
+
+Like Nike used to say...
+>Just Do It!
+
+- [ ] Exercise
+- [ ] Drink Plenty of Water
+- [ ] Pray/Spend Time with God
+- [ ] Show Others you Care...
+
