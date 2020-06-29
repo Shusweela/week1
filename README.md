@@ -12,7 +12,8 @@ Its beeen funny that I never could decide what my favorite color is until after 
 ```
 peach
 coral
-cotton Candy
+cotton candy
+rose gold
 yellow, green, orange, blue etc..
 I"m girlier than I thought...pink was my least favorite as a little girl...but iridescent is probably girlier. ha
 ```
@@ -44,7 +45,6 @@ Ready to Work :thumbsup: :fist: and Shine :sparkles: :sparkling_heart:
 6. go to work....
 7. just kidding.. this is not my real list.. but I have one!!
 
-![AltText] (https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcSY3UOZI1fEz-FjVLLE-UiYZ1IyDUVx8CgwOA&usqp=CAU)
-
-
-
+![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcSY3UOZI1fEz-FjVLLE-UiYZ1IyDUVx8CgwOA&usqp=CAU)
+    
+Format: ![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcQ-FVIHw8F7mwTRxxrkFVSTzCLlT7CrAZ0HKw&usqp=CAU
