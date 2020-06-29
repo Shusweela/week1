@@ -44,9 +44,7 @@ Ready to Work :thumbsup: :fist: and Shine :sparkles: :sparkling_heart:
 6. go to work....
 7. just kidding.. this is not my real list.. but I have one!!
 
-
-
-![Alt Text] (https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcSY3UOZI1fEz-FjVLLE-UiYZ1IyDUVx8CgwOA&usqp=CAU)
+![AltText] (https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcSY3UOZI1fEz-FjVLLE-UiYZ1IyDUVx8CgwOA&usqp=CAU)
 
 
 
